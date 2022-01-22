@@ -8,6 +8,6 @@ Step 2:- Paint a galaxy! (Tools needed- Paint Brush, Purple, Pink, Blue and whit
 
 Step 3:- Listen to music then try singing it!
 
-Last but not thye least!... Code!
+Last but not the least!... Code!
 
 And thats what it takes for you to be engaged!
