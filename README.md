@@ -10,4 +10,4 @@ Step 3:- Listen to music then try singing it!
 
 Last but not thye least!... Code!
 
-And thats what it takes you to be negaged!
+And thats what it takes for you to be engaged!
